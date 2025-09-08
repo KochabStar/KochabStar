@@ -1,4 +1,6 @@
-**Welcome! I'm KochabStar** 👋
+**Welcome! the**
+![](https://count.getloli.com/get/@:KochabStar?theme=gelbooru)
+**visitor.**
 
 ------
 
